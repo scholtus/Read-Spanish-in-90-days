@@ -1267,3 +1267,92 @@ Day 24 brings the “n” sound (a solid contrast to “ñ”), animal vocab, an
 Day 25 introduces the “m” sound (simple but essential), health vocab, and reinforces reflexive “sentirse” with a new verb (“tomar”). It builds on past days (e.g., “porque” from Day 15, “mucho” from Day 9) and keeps the progression smooth. How’s it feeling? Ready for Day 26?
 
 
+¡Excelente! Here’s Day 26, introducing a new sound and a topic that’s perfect for casual conversation.
+
+-----
+
+### Day 26: Sports and the “f” Sound
+
+**Reading (Spanish):**  
+“Hola, yo juego al fútbol con mis amigos. Mi hermano prefiere ver televisión en la sala. ¿Qué deportes practicas tú?”
+
+**Translation:**  
+“Hello, I play soccer with my friends. My brother prefers to watch TV in the living room. What sports do you practice?”
+
+**Pronunciation Focus:**
+
+- The “f” sound: In Spanish, “f” is a clear, sharp “f” (like “fan”), made with the lower lip against the upper teeth. It’s consistent and doesn’t soften like in some English words.
+- Practice: Say “fútbol” (FOOT-bohl) and “amigos” (ah-MEE-gohs), keeping the “f” crisp in “fútbol.”
+
+**Vocabulary:**
+
+- Al fútbol = Soccer (literally “to the soccer”)
+- Con = With
+- Mis amigos = My friends
+- Prefiere = He/she prefers
+- Ver = To watch/see
+- Televisión = Television
+- La sala = The living room
+- Deportes = Sports
+- Practicas = You practice
+
+**Grammar Concept:**
+
+- Verb “jugar” recap: “Juego” = I play (from Day 13). “Al” = to the, used with sports.
+- Verb “ver” (to watch/see): “Ver televisión” = to watch TV. “Prefiere ver” = he prefers to watch (infinitive after “prefiere”).
+- Verb “practicar” (to practice): “Practicas” = you practice. Regular “-ar” verb.
+
+**Task:**
+
+- Read the passage aloud 3 times, focusing on the sharp “f” in “fútbol.”
+- Practice: “Yo juego al [sport] con [person]. ¿Qué deportes practicas tú?” Try “tenis” (tennis) or “basquetbol” (basketball).
+
+-----
+
+Day 26 brings the “f” sound (a straightforward standout), sports vocab, and a new verb (“ver”) with “practicar.” It ties to past days (e.g., “juego” from Day 13, “prefiere” from Day 7) and keeps the text lively. How’s it going? On to Day 27?
+
+
+¡Vamos con el Día 27! Here’s a new sound and a practical topic to keep things rolling.
+
+-----
+
+### Day 27: Travel Plans and the “l” Sound
+
+**Reading (Spanish):**  
+“Hola, yo quiero viajar a Chile en julio. Mi amiga lleva su maleta al aeropuerto. ¿A dónde vas tú este año?”
+
+**Translation:**  
+“Hello, I want to travel to Chile in July. My friend takes her suitcase to the airport. Where are you going this year?”
+
+**Pronunciation Focus:**
+
+- The “l” sound: In Spanish, “l” is a clear, light “l” (like “love”), made with the tongue tip against the upper teeth or palate. It’s never dark or heavy like the English “l” in “ball.”
+- Practice: Say “Chile” (CHEE-leh) and “lleva” (YEH-bah), keeping the “l” bright and crisp.
+
+**Vocabulary:**
+
+- Viajar = To travel
+- Chile = Chile (country)
+- Julio = July
+- Lleva = She/he takes/carries
+- Su maleta = Her/his suitcase
+- Al aeropuerto = To the airport
+- ¿A dónde vas? = Where are you going?
+- Este año = This year
+
+**Grammar Concept:**
+
+- Verb “querer” recap: “Quiero” = I want (from Day 8). “Quiero viajar” = I want to travel (infinitive follows).
+- Verb “llevar” (to take/carry): “Lleva” = she/he takes. Regular “-ar” verb.
+- Verb “ir” recap: “Vas” = you go (from Day 16’s “voy” = I go).
+
+**Task:**
+
+- Read the passage aloud 3 times, focusing on the light “l” in “Chile” and “lleva.”
+- Practice: “Yo quiero viajar a [place] en [month]. ¿A dónde vas tú este año?” Try “México” or “diciembre” (December).
+
+-----
+
+Day 27 introduces the “l” sound (a subtle but key difference), travel vocab, and reinforces “querer” and “ir” while adding “llevar.” It connects to past days (e.g., “viajar” from Day 11, “aeropuerto” from Day 11) and keeps it exciting. Ready for Day 28?
+
+
