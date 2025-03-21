@@ -1,6 +1,6 @@
 ## Day 20: Shopping and the “p” Sound
 
-![](../images/2.jpg)
+![“Hola, yo compro pan en la panadería los lunes. Mi hermano paga poco por su café. ¿Dónde compras tú comida?”](../images/20.jpg)
 
 ### Reading (Spanish):
 “Hola, yo compro pan en la panadería los lunes. Mi hermano paga poco por su café. ¿Dónde compras tú comida?”
