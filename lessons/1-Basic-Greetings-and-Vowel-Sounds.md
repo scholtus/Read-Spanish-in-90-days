@@ -1,4 +1,4 @@
-# Day 1: Basic Greetings and Vowel Sounds
+## Day 1: Basic Greetings and Vowel Sounds
 
 ![Ana](../images/1.jpg)
 
