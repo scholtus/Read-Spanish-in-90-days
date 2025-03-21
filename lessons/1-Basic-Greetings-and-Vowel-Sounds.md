@@ -1,5 +1,7 @@
 # Day 1: Basic Greetings and Vowel Sounds
 
+![Ana](../images/1.jpg)
+
 **Reading (Spanish):**  
 
 “Hola, me llamo Ana. ¿Y tú? Yo soy de México.”
