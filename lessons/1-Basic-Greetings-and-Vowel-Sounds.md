@@ -10,6 +10,8 @@
 
 “Hello, my name is Ana. And you? I am from Mexico.”
 
+---
+
 **Pronunciation Focus:**
 
 - Spanish vowels: “a” (ah), “e” (eh), “i” (ee), “o” (oh), “u” (oo).
