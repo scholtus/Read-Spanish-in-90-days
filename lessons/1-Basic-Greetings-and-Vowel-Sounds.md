@@ -2,22 +2,20 @@
 
 ![Ana](../images/1.jpg)
 
-**Reading (Spanish):**  
+### Reading (Spanish):
 
 “Hola, me llamo Ana. ¿Y tú? Yo soy de México.”
 
-**Translation:**  
+### Translation:
 
 “Hello, my name is Ana. And you? I am from Mexico.”
 
----
-
-**Pronunciation Focus:**
+### Pronunciation Focus:
 
 - Spanish vowels: “a” (ah), “e” (eh), “i” (ee), “o” (oh), “u” (oo).
 - Practice: Say “Hola” (OH-lah) slowly, emphasizing the open “o” and “a” sounds, which are clearer and more consistent than English vowels.
 
-**Vocabulary:**
+### Vocabulary:
 
 - Hola = Hello
 - Me llamo = My name is
@@ -25,12 +23,12 @@
 - Yo soy = I am
 - De = From
 
-**Grammar Concept:**
+### Grammar Concept:
 
 - Word order: Spanish often follows a Subject-Verb-Object order, like English. “Yo soy de México” = “I am from Mexico.”
 - No need for articles like “a” or “the” in these basic phrases yet—we’ll add those later!
 
-**Task:**
+### Task:
 
 - Read the passage aloud 3 times, focusing on clear vowel sounds.
 - Try introducing yourself: “Hola, me llamo [your name]. Yo soy de [your country].”
