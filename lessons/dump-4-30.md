@@ -1356,3 +1356,138 @@ Day 26 brings the “f” sound (a straightforward standout), sports vocab, and 
 Day 27 introduces the “l” sound (a subtle but key difference), travel vocab, and reinforces “querer” and “ir” while adding “llevar.” It connects to past days (e.g., “viajar” from Day 11, “aeropuerto” from Day 11) and keeps it exciting. Ready for Day 28?
 
 
+¡Claro! It looks like Day 28 got cut off mid-sentence—sorry about that! Here’s the complete version, with the “k” sound focus and shopping theme intact.
+
+-----
+
+### Day 28: Shopping Needs and the “k” Sound
+
+**Reading (Spanish):**  
+“Hola, yo necesito comprar un kilo de carne. Mi hermano cocina con queso y tomate. ¿Qué necesitas tú para la cena?”
+
+**Translation:**  
+“Hello, I need to buy a kilo of meat. My brother cooks with cheese and tomato. What do you need for dinner?”
+
+**Pronunciation Focus:**
+
+- The “k” sound: In Spanish, “k” (or “c” before “a,” “o,” “u”) is a sharp, unaspirated “k” (like “cat”), with no puff of air like the English “key.” It’s crisp and clean.
+- Practice: Say “kilo” (KEE-loh) and “cocina” (koh-SEE-nah), keeping the “k” tight and unbreathy.
+
+**Vocabulary:**
+
+- Yo necesito = I need
+- Comprar = To buy
+- Un kilo = A kilo (kilogram)
+- Carne = Meat
+- Cocina = He/she cooks
+- Con = With
+- Queso = Cheese
+- Tomate = Tomato
+- ¿Qué necesitas? = What do you need?
+- La cena = Dinner
+
+**Grammar Concept:**
+
+- Verb “necesitar” (to need): “Necesito” = I need; “necesitas” = you need. Regular “-ar” verb.
+- Verb “cocinar” recap: “Cocina” = he/she cooks (from Day 10’s “cocino” = I cook).
+- “Para” recap: “Para la cena” = for dinner (from Day 13’s “para divertirte”).
+
+**Task:**
+
+- Read the passage aloud 3 times, focusing on the sharp “k” in “kilo” and “cocina.”
+- Practice: “Yo necesito comprar [item]. ¿Qué necesitas tú para la cena?” Try “pan” (bread) or “leche” (milk).
+
+-----
+
+Day 28 introduces the “k” sound (via “k” and hard “c”), shopping essentials, and a new verb (“necesitar”). It builds on past days (e.g., “comprar” from Day 8, “cocina” from Day 10) and keeps the progression practical. All good now? On to Day 29?
+
+
+¡Genial! Here’s Day 29, with a new sound and a topic that’s perfect for building conversation skills.
+
+-----
+
+### Day 29: Friends and the “h” Sound
+
+**Reading (Spanish):**  
+“Hola, yo hablo con mis amigos por teléfono. Mi hermano hace una fiesta en casa. ¿Con quién hablas tú hoy?”
+
+**Translation:**  
+“Hello, I talk with my friends on the phone. My brother throws a party at home. Who do you talk to today?”
+
+**Pronunciation Focus:**
+
+- The “h” sound: In Spanish, “h” is silent unless it’s in “ch” (Day 22). It’s a breath with no sound, unlike English “hat.”
+- Practice: Say “hablo” (AH-bloh) and “hace” (AH-seh), ignoring the “h” and starting with the vowel sound.
+
+**Vocabulary:**
+
+- Hablo = I talk
+- Mis amigos = My friends
+- Por teléfono = On the phone
+- Hace = He/she does/makes
+- Una fiesta = A party
+- ¿Con quién? = With whom?
+- Hablas = You talk
+
+**Grammar Concept:**
+
+- Verb “hablar” (to talk): “Hablo” = I talk; “hablas” = you talk. Regular “-ar” verb.
+- Verb “hacer” recap: “Hace” = he/she does/makes (from Day 22’s “hace mucho calor”).
+- “¿Con quién?” = With whom? “Quién” = who, paired with “con” = with.
+
+**Task:**
+
+- Read the passage aloud 3 times, keeping the “h” silent in “hablo” and “hace.”
+- Practice: “Yo hablo con [person] por [method]. ¿Con quién hablas tú hoy?” Try “mi familia” or “correo” (email).
+
+-----
+
+Day 29 introduces the silent “h” (a quirky Spanish trait), social vocab, and reinforces “hacer” while adding “hablar.” It ties to past days (e.g., “amigos” from Day 19, “en casa” from Day 4) and keeps it chatty. How’s it feeling? Ready for Day 30?
+
+
+¡Estupendo! Here’s Day 30, wrapping up the first month with a new sound and a practical topic.
+
+-----
+
+### Day 30: Nighttime and the “g” Sound (Hard)
+
+**Reading (Spanish):**  
+“Hola, yo miro la luna desde mi ventana. Mi amiga juega juegos en su cuarto por la noche. ¿Qué haces tú antes de dormir?”
+
+**Translation:**  
+“Hello, I look at the moon from my window. My friend plays games in her room at night. What do you do before going to bed?”
+
+**Pronunciation Focus:**
+
+- The “g” sound (hard): Before “a,” “o,” “u,” “g” is a hard “g” (like “go”), not the soft “h” before “e” or “i” (Day 15). It’s strong and guttural.
+- Practice: Say “juega” (HWEH-gah) and “juegos” (HWEH-gohs), keeping the “g” firm like “go.”
+
+**Vocabulary:**
+
+- Yo miro = I look/watch
+- La luna = The moon
+- Desde = From
+- Mi ventana = My window
+- Juegos = Games
+- Su cuarto = Her/his room
+- Por la noche = At night
+- Antes de = Before
+- Dormir = To sleep/go to bed
+
+**Grammar Concept:**
+
+- Verb “mirar” (to look/watch): “Miro” = I look. Regular “-ar” verb.
+- Verb “jugar” recap: “Juega” = she/he plays (from Day 13); “juegos” = games (noun form).
+- “Antes de” + infinitive: “Antes de dormir” = before going to bed. “De” links to the verb “dormir” (to sleep).
+
+**Task:**
+
+- Read the passage aloud 3 times, emphasizing the hard “g” in “juega” and “juegos.”
+- Practice: “Yo miro [something] desde [place]. ¿Qué haces tú antes de dormir?” Try “las estrellas” (the stars) or “la cama” (the bed).
+
+-----
+
+Day 30 introduces the hard “g” (contrasting Day 15’s soft “g”), nighttime vocab, and a new verb (“mirar”) with “antes de.” It builds on past days (e.g., “juega” from Day 13, “por la” from Day 16) and rounds out the month nicely. How’s it going? Ready for Day 31?
+
+
+
