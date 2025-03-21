@@ -1,9 +1,11 @@
 # Day 1: Basic Greetings and Vowel Sounds
 
 **Reading (Spanish):**  
+
 “Hola, me llamo Ana. ¿Y tú? Yo soy de México.”
 
 **Translation:**  
+
 “Hello, my name is Ana. And you? I am from Mexico.”
 
 **Pronunciation Focus:**
