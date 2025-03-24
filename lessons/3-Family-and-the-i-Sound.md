@@ -1,5 +1,7 @@
 ## Day 3: Family and the “i” Sound
 
+![Una familia grande](../images/3.jpg)
+
 ### Reading (Spanish):  
 “Mi familia es grande. Yo tengo dos hermanos y una hermana. ¿Tú tienes familia?”
 
